@@ -1,4 +1,4 @@
-# **Dhruv Kumar Bansal** |
+# **Dhruv Kumar Bansal** 
 
 ### 🚀 **View My Live Resume**
 
