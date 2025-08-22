@@ -1,6 +1,4 @@
-# **Dhruv Kumar Bansal** 
-
-### 🚀 **View My Live Resume**
+### **View My Live Resume**
 
 You can access the most up-to-date version of my resume by clicking the badge below:
 
